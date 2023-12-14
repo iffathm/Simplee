@@ -1,2 +1,2 @@
 # Simplee
-hi how r u
+polytechnic channapatna
